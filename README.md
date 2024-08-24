@@ -10,5 +10,5 @@ Hi, I’m Ogunrinola Victoria Lara
  I believe at the end of the programme an going to be
      one of the best in this August Cohort
 
- Am grateful to the Almight God whomade it Possible
+ Am grateful to the Almight God who made it Possible
      and also to the organizer of this Programme for the priviledge.
